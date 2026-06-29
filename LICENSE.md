@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with pls donate stealth Script, the #1 Script. Includes aimbot and silent aim for unbeatable performance.
 
 
 
